@@ -30,7 +30,7 @@ Email:
 gauravmoudgil1609@gmail.com
 
 LinkedIn:
-linkedin.com/in/gauravmoudgil16
+https://linkedin.com/in/gauravmoudgil16
 
 Portfolio:
 Coming Soon
